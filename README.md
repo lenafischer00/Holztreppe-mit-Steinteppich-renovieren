@@ -3,6 +3,8 @@
 Eine alte Holztreppe hat Charme – bis der Lack abplatzt, die Stufen knarzen und Kratzer das Gesamtbild ruinieren. Wer seine **alte Holztreppe renovieren** möchte, steht schnell vor einem Dilemma: Abschleifen und neu lackieren kostet Zeit und Mühe, während ein kompletter Neubau das Budget sprengen kann.
 
 Eine spannende Alternative ist die [**Holztreppe mit Steinteppich renovieren**](https://ds-steinteppich.de/steinteppich/blog/holztreppe-mit-steinteppich-renovieren). Doch hält dieser Bodenbelag aus Marmor- oder Quarzkieseln auf einem beweglichen Untergrund wie Holz wirklich, was er verspricht?
+<img width="1672" height="941" alt="Staircase Renovation_ Before and After" src="https://github.com/user-attachments/assets/fa3d5a35-cf3a-4a1b-acad-046142d5ff96" />
+
 
 ## Warum überhaupt eine Holztreppe verkleiden?
 
